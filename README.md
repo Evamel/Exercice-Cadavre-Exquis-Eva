@@ -2,7 +2,7 @@
 ![The rabbit](zietken.png)
 
 This is the story of the little rabbit :
-Once upon a time... in a far far away forest, lived a rabbit.
+Once upon a time... in a **far far away** forest, lived a rabbit.
 He had a lot of friends like :
 * Owls
 * Deers
