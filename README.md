@@ -23,8 +23,5 @@ The whole store was looking at him in **horror.**
 
 What could he do?Leave the store quickly before the police arrived? Apologize? The rabbit was **confused.**..The rabbit had just realized the horror he had committed.
 
-The whole store was looking at him in horror.
-
-What could he do?Leave the store quickly before the police arrived? Apologize? The rabbit was confused...
 
 ![nom](https://mvistatic.com/photosmvi/2018/10/19/P18442522D3554178G.jpg)
