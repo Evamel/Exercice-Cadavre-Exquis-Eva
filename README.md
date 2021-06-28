@@ -14,3 +14,5 @@ Everyday he went to the market in [London](https://fr.wikipedia.org/wiki/Londres
 But one day, everything went wrong...
 
 What a surprise when he met **Johnny Cadillac** ordering the last of the carrot of the market
+
+Without any hesitation, the hungry little rabbit **jumped** on Johnny, **grabbed** the carrot Mr Cadillac had just bought, and ate it in one bite. The other clients could only see a food induced madness in the eyes of our little rabbit, until he finished swallowing the delicious looking carrot. Back to normal, the little rabbit wondered why Johnny Cadillac was on the ground, and ,more importantly, *why he was on top of him*.
