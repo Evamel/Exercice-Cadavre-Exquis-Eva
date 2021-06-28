@@ -1,5 +1,5 @@
 # The story of the little rabbit
-![The rabbit](ziekten.jpg)
+![The rabbit](/ziekten.jpg)
 
 This is the story of the little rabbit :
 Once upon a time... in a **far far away** forest, lived a rabbit.
