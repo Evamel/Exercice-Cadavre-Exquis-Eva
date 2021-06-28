@@ -12,3 +12,5 @@ He had a lot of friends like :
 
 Everyday he went to the market in [London](https://fr.wikipedia.org/wiki/Londres).
 But one day, everything went wrong...
+
+What a surprise when he met **Johnny Cadillac** ordering the last of the carrot of the market
